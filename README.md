@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi! I ma Yashmit Raj
 A passionate Software developer
 
 
